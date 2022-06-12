@@ -1,1 +1,1 @@
-# rsschool-cv
+https://ifalboi.github.io/rsschool-cv/cv
